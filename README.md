@@ -1,0 +1,1 @@
+# dizideki-elemanlar-k-kten-b-y-e-s-ralayan-program-yaz-n-z
